@@ -1,5 +1,6 @@
 ![image alt](https://raw.githubusercontent.com/MysticMemoriess/MysticMemoriess/refs/heads/main/Alien%20stage.jpe)
-
+Hello!! My names Tobi/Jay. I'm an artist and I adore different types of media and storytelling!! Especially things that have a deep meaning to them. Then again I just like anything that interests me. I'm 18 (soon to be 19 in a few days) so PLEASE be cautious interacting. 
+!
 <!--
 **MysticMemoriess/MysticMemoriess** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
