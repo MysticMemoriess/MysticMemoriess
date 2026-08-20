@@ -4,7 +4,7 @@ Hello!! My names Tobi/Jay. I'm an artist and I adore different types of media an
 
 Fandoms/Interest's I have and WILL have skins (some) on are ALNST, Ace Attorney, JJBA (my goat, my inspiration I'm a huge fan), Kagurabachi, APH, Guilty Gears, Trigun, JJK (to an extent), etc.. I know a bunch of media
 
-![image alt](https://github.com/MysticMemoriess/MysticMemoriess/commit/d8e0ba90f28471d18b118f7cdf2df013f7441962#diff-f3786cac045b7602d0159c8f3a5b5c39f08d842a311a1c7d6db4e5c572a2f4a8)
+![image alt](https://raw.githubusercontent.com/MysticMemoriess/MysticMemoriess/refs/heads/main/karma.jpe)
 
 Always welcomed to C+H!! Just whisper to me as well to interact
 <!--
