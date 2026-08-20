@@ -2,7 +2,7 @@
 
 Hello!! My names Tobi/Jay. I'm an artist and I adore different types of media and storytelling!! Especially things that have a deep meaning to them. Then again I just like anything that interests me. I'm 18 (soon to be 19 in a few days) so PLEASE be cautious interacting. I'm an especially shy person who's trying to branch and work on communication skills, forgive me if I'm a bit quiet at first (I'm SHYY) but don't be afraid to speak to me!
 
-Fandoms/Interest's I have and WILL have skins (some) on are ALNST, Ace Attorney, JJBA (my goat, my inspiration I'm a huge fan), Kagurabachi, APH, Guilty Gears, Trigun, JJK (to an extent), etc.. I know a bunch of media
+Fandoms/Interest's I have and WILL have skins (some) on are ALNST, Ace Attorney, JJBA (my goat, my inspiration I'm a huge fan), Kagurabachi, APH, Guilty Gears, Trigun, JJK (to an extent), Gachiakuta etc.. I know a bunch of media
 
 ![image alt](https://raw.githubusercontent.com/MysticMemoriess/MysticMemoriess/refs/heads/main/karma.jpe)
 
